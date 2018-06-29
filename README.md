@@ -1,2 +1,1 @@
 # constitution-kr
-# constitution-kr
